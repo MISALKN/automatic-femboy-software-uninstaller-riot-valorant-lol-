@@ -1,1 +1,1 @@
-Wont hurt anything except for tiot stuff trust
+Wont hurt anything except for riot stuff trust
